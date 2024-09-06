@@ -1,0 +1,2 @@
+# NAKATUDDE-B
+Lecture
